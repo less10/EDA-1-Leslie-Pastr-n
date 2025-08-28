@@ -1,1 +1,1 @@
-# EDA-1-Leslie-Pastr-n
+# EDA-1-Leslie-Pastran
